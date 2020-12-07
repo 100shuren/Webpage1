@@ -1,2 +1,2 @@
-# 100shuren.github.io
-# Hello!
+# 十年树木 百年树人
+# 精英教育 因人制宜
